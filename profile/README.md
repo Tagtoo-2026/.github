@@ -1,4 +1,6 @@
-# 🚀 Tagtoo Vibe Coding Playground
+# 🚀 Tagtoo 2026
+Let's Vibe, Let's Build!
+一起玩 AI，一起把點子做出來！
 
 ### ✨ 有想法，就有機會做出來！
 
